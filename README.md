@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @ErraticFox
+- 👀 I’m interested in Web and Game development
+- 💞️ I’m looking to collaborate on anything
